@@ -1,0 +1,2 @@
+# msces
+MSc Equitation Science
